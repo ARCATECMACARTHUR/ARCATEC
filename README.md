@@ -1,4 +1,4 @@
-Hi, I’m @ARCATECMACARTHUR
+Hi, I’m ARCATEC
 
 • I’m interested in theoretical concepts related to consciousness, memory, quantum processes, and meaning. I also engage in art and pseudo-academic activities in the fields of physics, philosophy, and psychology.
 • I’m currently learning about advanced problem-solving frameworks and creating practical applications for my novel algebraic calculus, Intellidoscope,
